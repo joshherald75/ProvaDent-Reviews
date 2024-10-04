@@ -96,6 +96,10 @@ I insist that you be enthusiastic about your purchase, not just satisfied. You w
 
 ### ✅ **👉 [BUY SUGAR DEFENDER FOR HEALTHY GLUCOSE LEVELS](https://9b5b63klgot9vstr-0eqr6iqae.hop.clickbank.net)**
 
+#### **👉 [https://github.com/joshherald75/sugar-defender-24-blood-sugar-control-drop/blob/main/README.md
+](https://github.com/joshherald75/sugar-defender-24-blood-sugar-control-drop/blob/main/README.md
+)**
+
 
 
 
